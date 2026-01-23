@@ -33,5 +33,5 @@ Just in case you need to get really serious.
 On a budget flight to a conference? Ask for this:
 
 - tomato juice (usually served in a cup), salt, pepper
-- vodka
-- 
+- vodka (they have tiny bottles)
+- hope for ice

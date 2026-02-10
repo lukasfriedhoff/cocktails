@@ -43,3 +43,10 @@ Keeps you awake until you're drunk
 - crushed ice, brown sugar
 - 2cl rum, 2cl tequila, 2cl lime juice
 - fill up with energy (alternative volt cola, everything high caffeine)
+
+## Stammi Sufficient
+
+At a Stammtisch in a Kneipe and there is mostly only beer, but you don't like it? Hope to get some
+
+- apple spritz
+- Jägermeister
